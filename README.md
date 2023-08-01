@@ -10,7 +10,7 @@ I am currently a 3rd year student in general computer science/software engineeri
 
 Contact:
 
-- discord: `nat5#4387`
+- discord: `nat_776`
 - email: deindall AT outlook DOT com
 
 I am very much not confortable with most forms of communication. Therefore I may not answer you immediately, or forget. Please understand.
